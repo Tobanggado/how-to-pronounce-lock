@@ -1,37 +1,22 @@
-## Welcome to GitHub Pages
+<h1>How To Pronounce Lock</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-pronounce-lock/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">Lock Example In A Phrase</a></li><li><a href="#toc-1">Translation Of Lock</a></li><li><a href="#toc-2">How Do You Pronounce Locke?</a></li><li><a href="#toc-3">Test Your Pronunciation</a></li><li><a href="#toc-6">British Dictionary Definitions For Lock 1 Of</a></li><li><a href="#toc-8">Idioms About Lock</a></li><li><a href="#toc-9">Definition Of Lock</a></li></ul></div>
+<p>The Japanese characters used to make up his name are ザンギエフ (za-n-gi-e-fu), making the pronunciation "zahn-gee-ef". However, THAT isn't even appropriate, technically. The name "Zangief" cannot exist in Russian.</p>
+<div style='text-align:center'><iframe width='562' height='313' src='https://www.youtube.com/embed/xkwDVThfE4A' frameborder='0' alt='how to pronounce lock' allowfullscreen></iframe></div>
+<p>Many of her students went on to garner excessive awards in piano competitions, festivals, and piano guilds. Funeral houses typically submit obituaries as a service to the families they're helping. However, we might be joyful to accept obituaries from members of the family pending correct verification of the demise. XDA Developers was founded by builders, for builders. It is now a useful useful resource for individuals who need to benefit from their mobile gadgets, from customizing the look and feel to including new functionality.</p>
+<h2 id="toc-0">Lock Instance In A Phrase</h2>
+<p>This is a Bilingual Dicrionary that may assist you to pronounce English phrases into Spanish. You can take a quiz about lock in Spanish, Translate a sentence or word with lock In Spanish. I thought "Locke" was a fairly easy name however I really have to admit I've struggled with "Sabetha." I settled on it rhyming with "Tabitha" and am glad to see Katharine seconds that. I'm not sure why nevertheless it's necessary to me to try to pronounce character names correctly. Thank you for helping build the most important language community on the web.</p>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-pronounce-lock/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<p>But World of Final Fantasy added more to the confusion and went for "Quiss-tis". This official ad pronounces the English version "Guy-gus." None of the actors can agree on the right pronunciation of 'binoclard'. In The Final Cut, none of the voice actors can constantly pronounce the name of Kim's automobile, the Coupris Kineema. The narrator says "Cou-priss Kin-AY-ma", Kim says "Cou-priss Kin-EE-ma" and Joyce says "Cou-pree Kinnie-ma".</p>
+<h3 id="toc-1">Translation Of Lock</h3>
+<p>Her legal professional asked immediately conviction that Maxwell be given a COVID-19 booster shot as a end result of infection rates in her jail had been rising dramatically. Once she's sentenced, she will be moved to a federal prison. Maxwell was arrested in July 2020 — almost a 12 months after Epstein killed himself in jail whereas awaiting trial. After Epstein's demise, she withdrew from public activities like running an oceans charity. Her whereabouts became a subject of public hypothesis. Was that her consuming a burger and reading a book on CIA operatives in Southern California?</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>Who is a Peterman?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>1 : fisherman. 2 [peter entry 1 + man] slang : safecracker.</p></div>  </div></div>
+<p>Without public statements from the jurors, who've yet to come forward, it is impossible to say for sure. But the second depend, enticement of a minor to travel to interact in illegal intercourse acts, was maybe the most ambiguous of the charges levied. Maxwell was accused of having “enticed” Jane to New York City, arranging flights and providing gifts, figuring out that Epstein would abuse her. During deliberations, the jury gave the impression to be hung up on this count, asking for the definition of “enticement" in a note. This courtroom sketch exhibits Ghislaine Maxwell, left, conferring with her protection lawyer Bobbi Sternheim earlier than the start of her intercourse abuse trial right now, Thursday Dec. 9, 2021, in New York.</p>
+<h3 id="toc-2">How Do You Pronounce Locke?</h3>
+<p>You've got the pronunciation of lock right. Molan was appointeda Sky News Primetime Contributor, which will see her seem in a variety of the network’s programming. She’ll also host a new documentary focusing on online safety, and issue she has previously campaigned on. “But I assume this 12 months particularly, going via a family breakdown and having to do that with out mum and pa or any household help shut by, just reiterated how essential it is to be surrounded by folks that you simply love. [newline]COVID-19 lockdowns have only compounded her problems, making it troublesome to see family and friends during a tumultuous interval in her personal life. It centered on Molan saying “hooka looka mooka hooka fooka” on 2GB’s Continuous Call Team program after a co-host mentioned practicing how to pronounce participant names. The announcement of her separation came during a tough time for Molan, who has taken information outlet the Daily Mail to court over a story printed on June 5, 2020.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>Is door lock a word?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>Pronunciation (US): (GB):<br><br> Familiarity info: DOORLOCK used as a noun is very uncommon.</p></div>  </div></div>
+<p>The company was also busy post-war buying smaller hardware manufacturers, including the California Lock Company, Peabody Company, LCN Closers, the Von Duprin Factory, and the General Lock Company . In 1974, the yr the company was acquired by Ingersoll Rand, Schlage employed 1,600 and was the biggest producer in San Francisco. Schlage had just completed a transfer from the Old Office building to a three-story New Office situated close by, at the corner of Bayshore and Leland.</p>
+<h2 id="toc-3">Check Your Pronunciation</h2>
+<p>The complete trial was initially projected to final six weeks, however the witness lists for either side have been dramatically truncated with out rationalization. The jury took five full days to decide the case. Yes, regardless of multiple requests for bail, Maxwell was deemed a flight risk and has spent well over a year lodged in a federal lockup in Brooklyn. Her attorneys and family have lambasted jail circumstances as punitive and inhospitable to Maxwell’s capability to mount a correct protection.</p>
+<ul><li>Is it pronounced as a compound word or does it rhyme with "velocity"?</li><li>There's also "aw" (sorry, don't have the IPA) as in "off".</li><li>In the overseas variations, his name tends to vary between "K Dash" or "K Prime" relying on the game, although the previous is more common. [newline]The human names of the Organization's founding members, first mentioned solely within the Secret Ansem Reports, additionally suffered from this until later video games.</li><li>She must be sentenced, however a date has yet to be set.</li></ul>
+<p>Her sister Isabel attended each day of proceedings, typically joined by different siblings, and her household issued a powerful assertion of help for their sister after the decision. Ghislaine is notably the child of the household and said to have been the favourite of her father, Robert Maxwell, who died falling off a yacht named for her. Are we lacking an excellent definition for lock? This term consists of 1 syllables.You need just to say sound "lok" and that every one.</p>
